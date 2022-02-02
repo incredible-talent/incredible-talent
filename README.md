@@ -25,9 +25,8 @@
 <br />
 
  
-- 📫 Linkedin: [@jack](https://www.linkedin.com/in/jack-han/);
 - 💬 Telegram : [legenddevinblockchain](https://t.me/legenddevinblockchain);
-- 📝 Email : super.talent.jy@gmail.com
+- 📝 Email : incredible.talent.jh@gmail.com
 
 
 <br />
